@@ -1,2 +1,0 @@
-# ohno
-dzięki za kliki
